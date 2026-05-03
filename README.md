@@ -1,1 +1,0 @@
-# htetnaingmyo-ruijiecodescanner
